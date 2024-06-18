@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @watsupdoggy
+- 👋 Hi, I’m dog
 - 👀 I’m interested in games
 - 🌱 I’m currently learning nothing
 - 💞️ I’m looking to collaborate on... not yet
